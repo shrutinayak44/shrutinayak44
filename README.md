@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shrutinayak44
-- 👀 I’m interested in technical program management 
+- 👀 I’m interested in technical program management / product management 
 - 🌱 I’m currently working at Oracle
 - 📫 You may reach out to me via mail shrutinayak44@gmail.com
 
